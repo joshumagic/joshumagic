@@ -3,8 +3,7 @@
 
 if lalali has 0 haters.. im alive and WELL 🗣️🗣️🗣️⁉️⁉️🤣🤣
 
-[rentry hoard](rentry.co/shoardy)
-
+[rentry hoard](https://rentry.co/shoardy)
 
 
 
